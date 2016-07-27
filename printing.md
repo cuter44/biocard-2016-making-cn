@@ -71,15 +71,15 @@
 以下是广萌在制作 biocard 过程中接洽的一些品质优秀的提供商.
 提供的商品和服务质量可能因为时间而变化, 请咨询社区的老司基后自行决定是否采用.
 
- * 印刷提供商: https://detail.tmall.com/item.htm?id=520344230268
+ * 印刷提供商: https://detail.tmall.com/item.htm?id=520344230268  
    其中 QQ 为 501507***** 的修图兼客服妹子工作非常认真负责.
 
- * 大容量卡册: https://detail.tmall.com/item.htm?id=10817975390
+ * 大容量卡册: https://detail.tmall.com/item.htm?id=10817975390  
    用于为交换的卡片提供大容量存储, 另外还可以用于存储车票/地铁票卡等
 
- * 小容量卡册: http://www.muji.com.cn/cn/store/goods/4548718615155
+ * 小容量卡册: http://www.muji.com.cn/cn/store/goods/4548718615155  
    用于外出时携带收集得到的卡片
 
- * 卡盒: http://www.muji.com.cn/cn/store/goods/4945247506822
+ * 卡盒: http://www.muji.com.cn/cn/store/goods/4945247506822  
    用于外出时携带用于送出的卡片
 
