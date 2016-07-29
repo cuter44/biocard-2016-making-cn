@@ -11,4 +11,4 @@ Biocard 是由 Ingress 官方倡议的, 玩家自由制作的 **玩家名片**. 
 
 我们热诚地欢迎你加入我们的行列.  
 
-![](asset/p2323862816.jpg)
+![](asset/0-coverage.jpg)
